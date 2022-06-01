@@ -6,7 +6,7 @@ My main interests are in front-end development, UX design, computer graphics and
 
 Some of my other interests are in Photography, digital media, divulgation and entertainment, travel. 
 
-I also really like making my life hard by being a stubborn perfectionist. Also, 110% activist queer 🏳️‍🌈
+I also really like making my life hard by being a stubborn perfectionist. Also, 110% queer 🏳️‍🌈 and activist
 
 
 
