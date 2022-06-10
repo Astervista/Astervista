@@ -16,4 +16,4 @@ Some of my photos on my <a href="https://instagram.com/asteriofiora">Instagram</
 
 My <a href="https://facebook.com/asteriofiora">Facebook</a> profile
 
-Some other photos on <a href="https://facebook.com/asteriofiora">Adobe Stock</a>
+Some other photos on <a href="https://stock.adobe.com/it/contributor/210765066/Asterio">Adobe Stock</a>
